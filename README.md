@@ -1,0 +1,1 @@
+# proyek_akuiisisi_data
